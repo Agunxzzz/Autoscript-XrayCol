@@ -1,4 +1,4 @@
-# Autoscript XrayColongan
+# Autoscript XrayCol
 
 Filenya di https://github.com/Agunxzzz/XrayCol
 
