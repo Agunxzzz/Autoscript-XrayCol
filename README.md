@@ -27,3 +27,4 @@ aslinya script bawaan ada fitur ssh, namun saya hapus karena memang ga idup webs
 Ga punya domain? PM ane aja :<a href="https://t.me/Tereza11" target=”_blank”><img src="https://img.shields.io/static/v1?style=for-the-badge&logo=Telegram&label=Telegram&message=Click%20Here&color=blue"></a><br>
 <br>
 ## GRATIS
+y
